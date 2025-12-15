@@ -1,3 +1,1 @@
-Hello, world
-and everyone else
-it is really exciting
+Алиса Чикомазова 504497
